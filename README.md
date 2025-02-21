@@ -6,4 +6,4 @@
 - .(https://anchieta.br/)
 
 - ![image]
-- (https://media1.tenor.com/m/riUY62dRgjkAAAAC/penguin-welcome.gif) 
+- .(https://media1.tenor.com/m/riUY62dRgjkAAAAC/penguin-welcome.gif). 
