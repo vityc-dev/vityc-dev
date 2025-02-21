@@ -5,4 +5,4 @@
 - estudante de analìse e desenvolvimento de sistemas
 - .(https://anchieta.br/)
 
-- ![gif](https://tenor.com/pt-BR/view/java-programming-gif-4081143234914914503). 
+- ![image](https://media1.tenor.com/m/riUY62dRgjkAAAAC/penguin-welcome.gif). 
